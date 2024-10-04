@@ -30,6 +30,7 @@ Now that you have convince yourself and/or your other half with your _"reasons"_
 Using a foldable bike (i.e. foldy) while your cycling buddies are on their slick, and aerodynamic time-trial bikes, will lead to severe brusing of ego as you try to keep up to their pace.
 ```
 
+
 ## 3. Sizing
 
 **SIZE** does matter. I mean the size of your bike. Getting one that doesn't fit you will cause the individual to feel uncomfortable on rides, inability to control and handle the bike well, and may even lead to injuries or accidents
